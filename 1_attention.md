@@ -1,0 +1,13 @@
+# #1 - Attention
+
+This blog is basically going to consist of my shower thoughts. It's funny how being in a state of extreme physical comfort allows the mind to dredge up new ideas. It kind of ties in with the theme of this post, which is that attention is one ouf our most important resources. 
+
+I've read that productivity is equal to attention times time, and I think this rings true for me. Given all the time in the world (for example, an entire evening to write a simple post about attention) but lacking a minimum amount of attention, it becomes hard to finish even simple tasks, let alone especially hard or long-running ones that require copious attention *just to fill your head with enough context* to even begin to move forward. Likewise, extreme attention is useless without enough time. Reflecting on my experiences I can say that I am more held back by my lack of attention rather than the lack of time. Alas, everyone who has ever lived enjoyed the same 24 hours in a day that you and I do, with the possible exception of those with the genetic ability to sleep only 4 hours a night.
+
+What are strategies to increase focus? I think like anything else, focus is a skill that can be learned or neglected. So the answer is, a daily meditation practice. If I spend 2 hours a day staring into my phone screen, not consecutively but rather randomly throughout the day, never spending more than 30 minutes away from a peek, what is that training my brain to do? The same goes for work - if I'm constantly switching between tasks, am I making progress? No. It is thus a scheduling problem. Similar to intermittent fasting which provides benefits even if you eat the same composition and amount of food but keep it within a constrained feeding window, scheduling dedicated diffuse and focus mode time will bring benefits to productivity. Low-attention is sometimes a useful state to be in for generating new ideas such as the one that sparked this post. However, actually doing the work of writing this post requires attention.
+
+I'm butchering this quote but there is a saying like "how you spend your attention is how you spend your days, which is how you spend your years, which is how you spend your life." It's worthwhile to think hard about what I want in life, and make sure that my daily actions match my intention. Because as is all too apparent: it's so easy to live life on autopilot. 
+
+---
+
+I wrote this post in about 30 minutes. While writing the first part I switched around tabs and messages on my computer, but by the middle I was more focussed. This could be due to the looming deadline (of going to sleep) or Newton's first law. 
