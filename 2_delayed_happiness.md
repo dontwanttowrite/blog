@@ -1,0 +1,9 @@
+How should one balance delayed gratification vs. living in the moment?
+
+I would say I'm good at delaying gratification. Or, more accurately, I identify as someone who routinely delays gratification, even if reality doesn't always back that up. (Continually giving in to the temptation for the next dopamine hit when I check the news or social media is a great counterexample.) This identity often  conflicts with the idea of living for the now and enjoying what little time we're given on Earth. 
+
+It's the fallacy of "as soon as I achieve X I will be happy." The best defense against falling into this mindset is to examine past achievements. A postmortem analysis of major life milestones would probably show a temporary boost in happiness, say when graduating from college or receiving a job offer, and then a gradual return to baseline. It is obviously important to strive to achive future goals, but not at the expense of today's happiness.
+
+Part of your current happiness could be the feeling that you're on the path to a happy future, but it's really important to realize that the future isn't guaranteed. I frequently fall into thinking that things will be vastly different (better) in the future, but what is preventing me from making the changes now? Only myself. I dream of my future being simple, distraction-free, and perfectly optimized for health, happiness, and fun - but I could be working towards all of those things right now in my current circumstance. Therefore, I'm limited by my planning and willpower abilities. So the next logical step is to identify how to improve these skills. I would imagine this would include sticking to a schedule, doing things even when you don't feel like doing them, and meditation.
+
+Boy, this has gotten pretty self-helpy. I'll try to tone down the woe-is-me for future entries. 
